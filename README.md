@@ -1,4 +1,4 @@
-# 🚀 Ataşehir Escort – Hızlı, Güvenli ve Gizli Hizmetler 🕶️
+# ❤️ Beyoğlu Escort – Hızlı, Güvenli ve Gizli Hizmetler ❤️
 
 [![TIKLA SİTEYE GİT](kiz.png)](https://pezevenkdayi.xyz)
 
@@ -6,7 +6,7 @@
 
 ## Hakkımızda
 
-Ataşehir bölgesinde özel tanışmalar, güvenli iletişim ve kaliteli vakit geçirmek isteyenler için hizmet veriyoruz. Tüm süreçlerde gizliliğe ve karşılıklı güvene öncelik veriyoruz.
+Beyoğlu bölgesinde özel tanışmalar, güvenli iletişim ve kaliteli vakit geçirmek isteyenler için hizmet veriyoruz. Tüm süreçlerde gizliliğe ve karşılıklı güvene öncelik veriyoruz.
 
 ### Neler Sunuyoruz:
 
